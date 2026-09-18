@@ -5,6 +5,8 @@ Daiana Yamilet Flores Gomez
 1. dibujar 
 2. escuchar musica 
 3. ver series 
+4. Pasar tiempo con mi familia
+5. Ayudar a mis compañeros
 
 # Mi meta 
 Terminar una carrera y tener un buen futuro 
